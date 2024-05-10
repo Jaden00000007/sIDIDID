@@ -1,0 +1,1 @@
+Dian Diary #1
